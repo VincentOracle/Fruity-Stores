@@ -1,1 +1,1 @@
-Fruity stores
+The Fruity stores

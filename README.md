@@ -1,1 +1,2 @@
-The Fruity stores
+The Fruity stores Website
+ 

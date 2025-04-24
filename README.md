@@ -1,2 +1,2 @@
-The Fruity stores Website stores
+The Fruity stores Website stores website
  
